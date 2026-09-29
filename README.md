@@ -1,0 +1,2 @@
+# Diversity-Nexus-Internship
+Assignments
